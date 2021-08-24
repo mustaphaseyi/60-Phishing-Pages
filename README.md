@@ -25,18 +25,18 @@ WHOAMI? Abdul Azeez Seyi Mustapha, 25 yo, Yoruba, Nigerian.
 
 Currently: Studying Criminology & Security Studies in the National Open University of Nigeria.
 
-E: mustapha.seyi@protonmail.ch
-B: bc1qsrhu9zkq3dn8wet4weqzhd2dyxdrcnctha6wdd
+E: mustapha.seyi@protonmail.ch<br/>
+B: bc1qsrhu9zkq3dn8wet4weqzhd2dyxdrcnctha6wdd<br/>
 Upwork Profile: https://www.upwork.com/freelancers/~01b06748acb621c0d6?viewMode=1  (LOGIN/SIGNUP TO VIEW)
 
-https://transise.ng
-https://websiteisloading.com
+https://transise.ng<br/>
+https://websiteisloading.com<br/>
 
 
 For the OG's: i******d
 
 FREEBIE [ NIGERIAN CAC COMPANY REGISTRATION MANUAL: https://pre.cac.gov.ng/assets/docs/crp-user-guide.pdf ]
-Nigeria is now one of the easiest countries where you can register a business as a corporate entity now. #UsefulSkills
+Nigeria is now one of the easiest countries where you can register a business as a corporate entity now. #UsefulSkills<br/>
 
 
 
